@@ -40,3 +40,9 @@ If you're looking for a reliable and skilled virtual assistant to help you manag
 
 (my Resume)
 [Johnmary VA resume.pdf](https://github.com/user-attachments/files/15512559/Johnmary.VA.resume.pdf)
+
+
+
+(Email templates)
+
+[Follow up email template .pdf](https://github.com/user-attachments/files/15514053/Follow.up.email.template.pdf)
