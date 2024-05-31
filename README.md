@@ -1,6 +1,4 @@
 # Virtual-Assistant-portfolio-
-Here's a draft README file for your virtual assistant repository:
-
 *Welcome to My Virtual Assistant Portfolio!*
 
 Hi there! I'm [Your Name], a highly skilled and experienced virtual assistant dedicated to helping businesses and entrepreneurs like you manage their workload efficiently. With a passion for organization, communication, and problem-solving, I'm here to help you streamline your operations and achieve your goals.
