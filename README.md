@@ -1,7 +1,7 @@
 # Virtual-Assistant-portfolio-
 *Welcome to My Virtual Assistant Portfolio!*
 
-Hi there! I'm [Your Name], a highly skilled and experienced virtual assistant dedicated to helping businesses and entrepreneurs like you manage their workload efficiently. With a passion for organization, communication, and problem-solving, I'm here to help you streamline your operations and achieve your goals.
+Hi there! I'm Johnmary Nzute, a highly skilled and experienced virtual assistant dedicated to helping businesses and entrepreneurs like you manage their workload efficiently. With a passion for organization, communication, and problem-solving, I'm here to help you streamline your operations and achieve your goals.
 
 *About Me*
 
