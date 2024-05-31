@@ -36,3 +36,5 @@ By working with me, you'll gain a trusted partner who is:
 *Let's Get Started!*
 
 If you're looking for a reliable and skilled virtual assistant to help you manage your workload, let's connect! Explore my repository, and let's discuss how I can support your business growths.
+(my Resume)
+[Johnmary VA resume.pdf](https://github.com/user-attachments/files/15512559/Johnmary.VA.resume.pdf)
