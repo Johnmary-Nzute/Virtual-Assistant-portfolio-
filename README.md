@@ -5,7 +5,7 @@ Hi there! I'm Johnmary Nzute, a highly skilled and experienced virtual assistant
 
 *About Me*
 
-As a seasoned virtual assistant, I bring 4 years of experience in providing top-notch administrative support to clients across various industries. My expertise includes:
+As a seasoned virtual assistant, I bring 3 years of experience in providing top-notch administrative support to clients across various industries. My expertise includes:
 
 - Email management and organization
 - Data entry and bookkeeping
